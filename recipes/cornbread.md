@@ -10,3 +10,5 @@
 - 1 cup milk or milk substitute
 - 1/3 cup vegetable oil
 - 1 large egg or chickpea water (for a vegan version)
+
+Bake for 20-25 minutes at 200°C.
